@@ -1,5 +1,6 @@
 goated hack
 suiiiiii
 ronaldo is also goat
-go to code then local
-copy then paste link
+[
+](https://github.com/rxzyx/prodigy-hack)
+go to link suiiiiiiii
