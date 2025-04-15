@@ -3,4 +3,4 @@ suiiiiii
 ronaldo is also goat
 [
 ](https://github.com/rxzyx/prodigy-hack)
-go to link suiiiiiiii
+go to code suiiiiiiii
